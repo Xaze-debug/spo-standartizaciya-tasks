@@ -1,0 +1,1 @@
+# spo-standartizaciya-tasks
